@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Ja3ko
+-  I'm currently a student studying IT and Engineering
